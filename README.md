@@ -1,0 +1,1 @@
+# analyzinn-solutions-internship-tasks
